@@ -1,0 +1,1 @@
+# Multi-Dimensional-Study-of-Global-Suicide-Rate
